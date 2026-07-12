@@ -25,3 +25,9 @@
 - 大胆的配色：黄床、蓝墙、红毯
 - 刻意简化的透视，带有儿童画般的纯真
 - 墙面和家具的轮廓线透露着不安与躁动
+---
+
+## 了解更多
+
+- [Wikipedia - 查看词条](https://en.wikipedia.org/wiki/Bedroom_in_Arles)
+- [Google Arts & Culture - 高清浏览](https://artsandculture.google.com/asset/the-bedroom/jwHaQVXbfPts9A)
