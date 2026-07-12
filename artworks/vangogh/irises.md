@@ -26,3 +26,9 @@
 - 蓝紫色与橙黄色的对比
 - 没有黑色轮廓线，风格更接近印象派
 - 1990 年曾以 5390 万美元成交
+---
+
+## 了解更多
+
+- [Wikipedia - 查看词条](https://en.wikipedia.org/wiki/Irises_(painting))
+- [Google Arts & Culture - 高清浏览](https://artsandculture.google.com/asset/irises/mQG-nwrh6fRGYw)
