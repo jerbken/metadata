@@ -26,3 +26,9 @@
 - 水面倒影的细腻处理
 - 星空中的北斗七星清晰可辨
 - 色调比《星月夜》更柔和、温暖
+---
+
+## 了解更多
+
+- [Wikipedia - 查看词条](https://en.wikipedia.org/wiki/Starry_Night_Over_the_Rh%C3%B4ne)
+- [Google Arts & Culture - 高清浏览](https://artsandculture.google.com/asset/starry-night-over-the-rhone/dAFLGEVidFyH-w)
