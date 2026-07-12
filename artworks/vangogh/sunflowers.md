@@ -25,3 +25,9 @@
 - 以黄色为主调，运用不同层次的黄表达情感
 - 大胆的轮廓线和平涂色彩
 - 向日葵从灿烂到凋零的细节表现了生命的循环
+---
+
+## 了解更多
+
+- [Wikipedia - 查看词条](https://en.wikipedia.org/wiki/Sunflowers_(Van_Gogh_series))
+- [Google Arts & Culture - 高清浏览](https://artsandculture.google.com/asset/sunflowers-kFbDoOZh2yYI8w)
