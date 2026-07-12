@@ -26,3 +26,9 @@
 - 深褐色为主调，灯光下人物的粗犷面庞
 - 粗糙的笔触突出了人物的质朴
 - 梵高说："我想表达的是，他们诚实地用这双手在盘子里拿土豆吃"
+---
+
+## 了解更多
+
+- [Wikipedia - 查看词条](https://en.wikipedia.org/wiki/The_Potato_Eaters)
+- [Google Arts & Culture - 高清浏览](https://artsandculture.google.com/asset/the-potato-eaters/0AEmWGgnpQmqrQ)
