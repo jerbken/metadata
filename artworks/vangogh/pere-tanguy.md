@@ -26,3 +26,9 @@
 - 唐吉老爹慈祥的面容与稳重的姿势
 - 色彩明亮，受印象派影响明显
 - 展现了梵高巴黎时期的艺术转变
+---
+
+## 了解更多
+
+- [Wikipedia - 查看词条](https://en.wikipedia.org/wiki/Portrait_of_P%C3%A8re_Tanguy)
+- [Google Arts & Culture - 高清浏览](https://artsandculture.google.com/asset/portrait-of-p%C3%A8re-tanguy/3AHT85AsGegnnQ)
