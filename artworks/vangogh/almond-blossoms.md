@@ -25,3 +25,9 @@
 - 受日本浮世绘影响，构图简洁留白
 - 画面色调明亮、柔和，充满希望
 - 精细的花瓣刻画，是梵高少有的"安静"作品
+---
+
+## 了解更多
+
+- [Wikipedia - 查看词条](https://en.wikipedia.org/wiki/Almond_Blossoms)
+- [Google Arts & Culture - 高清浏览](https://artsandculture.google.com/asset/almond-blossom/dgF2N3X5K_7M0A)
