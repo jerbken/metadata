@@ -1,3 +1,5 @@
+![potato-eaters](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b1/Van-willem-vincent-gogh-die-kartoffelesser-03850.jpg/800px-Van-willem-vincent-gogh-die-kartoffelesser-03850.jpg)
+
 # 吃土豆的人
 > **The Potato Eaters** | 1885
 
