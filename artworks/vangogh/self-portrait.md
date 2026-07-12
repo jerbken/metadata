@@ -25,3 +25,9 @@
 - 旋涡状的背景笔触与《星月夜》相呼应
 - 胡须和头发的精细刻画
 - 坚定的眼神传达出内在力量
+---
+
+## 了解更多
+
+- [Wikipedia - 查看词条](https://en.wikipedia.org/wiki/Self-portrait_by_Van_Gogh)
+- [Google Arts & Culture - 高清浏览](https://artsandculture.google.com/asset/self-portrait/3wFJ_xMy62nBIA)
