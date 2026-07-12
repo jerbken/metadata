@@ -25,3 +25,9 @@
 - 旋涡状的星空笔触，预示了表现主义的诞生
 - 柏树火焰般的造型，象征死亡与永恒
 - 尽管是夜晚场景，画面却充满了明亮的光感
+---
+
+## 了解更多
+
+- [Wikipedia - 查看词条](https://en.wikipedia.org/wiki/The_Starry_Night)
+- [Google Arts & Culture - 高清浏览](https://artsandculture.google.com/asset/the-starry-night/bgEuwDxel93-Pg)
