@@ -26,3 +26,9 @@
 - 丝柏树火焰般的造型，象征生命力
 - 金黄色与深绿色的强烈对比
 - 被认为是梵高风景画的巅峰之作
+---
+
+## 了解更多
+
+- [Wikipedia - 查看词条](https://en.wikipedia.org/wiki/Wheat_Field_with_Cypresses)
+- [Google Arts & Culture - 高清浏览](https://artsandculture.google.com/asset/wheat-field-with-cypresses/BgE-j3VLo13IZA)
